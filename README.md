@@ -1,9 +1,11 @@
 #[going off mode a lot or putting dni much nowadays, irl problems .]]
-[[ginna change the them soson trust]]
-
 ---
-‎ ‎ lazy graphic ><
-![Untitled38_20241017055655](https://github.com/user-attachments/assets/48121501-6af9-4192-ab33-70ff3f2d5610)
+---
+
+
+![IMG_5776](https://github.com/user-attachments/assets/abc5fb8a-777a-4bae-ace5-3d9466a94aa8)
+
+
 ---
 
 i go by many names, mostly known as len or kai ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
@@ -40,8 +42,4 @@ I ❤️ gifted and matching skins. ladies ❤️
 ---
 
 
-
-
-
-![IMG_5732](https://github.com/user-attachments/assets/5e5cd83b-6a4b-4f80-9614-115975d2050e)
 
