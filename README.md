@@ -1,12 +1,9 @@
 #[going off mode a lot or putting dni much nowadays, irl problems .]]
 ---
 ---
+graphic soon 
 
-
-![IMG_5776](https://github.com/user-attachments/assets/abc5fb8a-777a-4bae-ace5-3d9466a94aa8)
-
-
----
+--- 
 
 i go by many names, mostly known as len or kai ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
 
