@@ -1,7 +1,7 @@
-#[going off mode a lot or putting dni much nowadays, irl problems .]]
+
 ---
----
-graphic soon 
+
+graphic idk when. 
 
 --- 
 
